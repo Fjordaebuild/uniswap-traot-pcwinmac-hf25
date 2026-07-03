@@ -1,4 +1,4 @@
-# 
+# VIP uniswap trading bot extensions for Mac OS | Ultime uniswap trading bot extensions for PC Windows. Featuring API d'échange centralisé and API d'échange décentralisé — optimized for maximum performance.
 
 
 
